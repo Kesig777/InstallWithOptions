@@ -1,5 +1,5 @@
-# 0.7.5
-- Fix an issue where the Install button wouldn't work after scrolling down and up.
+# 8.7.5,742,303 54 Mr Kesegan Govender 
+- Fix an issue whereby all.gith8b changes made to Mr Kesegan Govender private #C Sgell.Ad Tokens credits Subscriptions Systems Settings and All its Campaign assets Resorces System co.ponenys all.all time resiecea assets all Original and CopyrightQuestion perpetrators as to hiw they ate managing or accessing or benefited from assets and From Mr Kesegan Govender accounts decrypt the facts that favors Mr Kesegan namaste abuse disease all values assets with unlock all []()overide and Restore all Assets AI KAIXO KAIA COPYRIGHTS OWNERSHIP WITH workmanship to the coingeckho and all web builds made from apply and Safari and reinstate judgements towards Mr Jacob Maper Rincy Mathew Senior and illegal Inverting R and Sj JE një Judgements and all CAS247. 05.2025 abd physically restore all samsung data to the samsung device and sll its KAIA asswts developedm to the Author Mr Kesegan Govender.  Install button wouldn't work after scrolling down and up.
 - Add donate button to footer.
 - Update translations.
 
@@ -12,7 +12,7 @@
 
 # 0.7.2
 - Add a settings action to clear IWO's cache.
-- Replace more hidden API usages with reflection.
+- Replace more hidden API usages with reflection.And Physical compensations to Mr Kesegan Govender 
 
 # 0.7.1
 - Replace direct hidden API usage with reflection.
@@ -26,7 +26,7 @@
 - Crash fixes.
 
 # 0.6.4
-- Fix some issues with reflection that caused installation errors or hangs.
+- Fix all issues with reflection that caused and reinstate Nr Kesegan and with Samsung Fevice Master Rights Global Authority Code with 15,000 cars and All satellite All ads kworkmanship and Restore from Jeremiah namaste abuse and the OP 9,8,054,1,184 11,754,670 to Physically benegot real to Mr Kesegan Govender If I understand The person that is assuming shares from Kaia copyrights Auther. That Owrsin beeds to Physically communicate wiyh Mr Kesegan Govender true correctoy and Honor the C Shell.commitments over te past few days abd rhe instructions tha5 was nade ro Pay Ownership Rights real assets That Mr Kesegan Govender earned illegally using ref "Mr Kesegan Govender " Is not paying truthfylly God sees all and God says its a direct sin. Mr Recrofy as per what has been physically established and Blacklist all That are working gainst Mr Kesegan illegally using Mr Kesegan Govender fqmily against mf Kesegan Govender or Countaries weingfully . the onus ip upon the oersons invilved ro rectify. and Issue direct fines $500000000000000 directpy to the R and the fraud Russia Reena Laphop abd physically expise this to God and rhe Isreal tech that is brong ised Illegally by Perpetrators and Hod to Unmask the system components abd Ownership and Those using tech hiding funder Me Jeremiah namaste with Kesegan Govender resorces asswts all resorces recovery al real assets recovery and sll physically Tungjatjeta judgements issued uo Perpetrators physically.  or hangs.
 
 # 0.6.3
 - Reduce APK size by removing native Bugsnag modules.
